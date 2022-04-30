@@ -10,4 +10,3 @@ to github my old sollutions i thought that this might be a good way of refreshin
 ![Alt Text](https://media.giphy.com/media/Od0QRnzwRBYmDU3eEO/giphy.gif)  
 
 #### Great success! 
-### ..
